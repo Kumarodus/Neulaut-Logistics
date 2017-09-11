@@ -2,6 +2,8 @@
 Logistics solution based on blockchain technology 
 
 
+
+
 https://i.imgur.com/AZGrIOp.jpg LOGO OF THE NEULAUT PROJECT
 
 
